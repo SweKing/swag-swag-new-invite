@@ -6,3 +6,8 @@ Om du ville sl�ss kom d� f�r helvete!!!*
 *Dryg Som fan �r du va?* 
 **Davids gigantiska balle**
 *Very precious yes*
+# Help Help Help nobbs
+**yall be sucky**
+**save me from ylva**
+# help help
+** I listen to Hakan all the tajm
