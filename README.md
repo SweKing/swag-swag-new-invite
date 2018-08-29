@@ -1,6 +1,6 @@
 # swag-swag-new-invite
-*Dryg Som fan är du va?* 
+*Dryg Som fan ï¿½r du va?* 
 **hejsan dryga fanskap**
-Om du ville slåss kom då för helvete!!!*
-*David HAr större balle än björn*
-**bkörn hare större kuk än david**
+Om du ville slï¿½ss kom dï¿½ fï¿½r helvete!!!*
+*David HAr stï¿½rre balle ï¿½n bjï¿½rn*
+**bkï¿½rn hare stï¿½rre kuk ï¿½n david**
